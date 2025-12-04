@@ -7,7 +7,7 @@
 
 <td width="230" align="center" valign="middle">
 
-<img src="https://w7.pngwing.com/pngs/311/129/png-transparent-mac-book-pro-macos-pdf-optical-character-recognition-enol-text-orange-logo.png" width="200"><br>
+<img src="https://www.apppvp.com/wp-content/uploads/2025/05/1747361796-ca383de12882905.webp" width="200"><br>
 
 <a href="https://mac-apps-install.github.io/.github/cisdem-pdfmaster">
   <img src="https://i.postimg.cc/7LTTZgxF/macos-badge-noborder.png" width="180">
